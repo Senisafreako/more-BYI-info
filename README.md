@@ -1,6 +1,10 @@
 # more-BYI/DNI-info
 just more information abt me &lt;33
 
+![cdaf960ab1c6356ff7f9bc2055f30cc5](https://github.com/user-attachments/assets/73e165c8-54c1-4e8c-9356-ac5ca4616e5e)
+
+
+
 <p>(DNI- I do not tolerate proshippers/proships, in the safe server. if i see a proshipper i will not hesitant to block, or hide. (Example: "mdni", its the safeserver go to the 18+ instead. thats just bullshit, if you say dni to minors on the server where LITERAL minors are at. your just being a idiot.)
 </p>
 
