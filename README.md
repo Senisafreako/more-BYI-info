@@ -14,7 +14,7 @@ just more information abt me &lt;33
 <p>(feel free to C+H with me.) off-topic 
 </p>
 
-<p>i am a multishipper. i DO  NOT  do weird ships, like Sukugo, or any sukuna x yuji / Megumi ships,  - but i do love Satosugu, and Itafushi.
+<p>i am a multishipper. i DO  NOT  do weird ships, like Sukugo(I think platonic is fine, just dont be weird abt it.), or any sukuna x yuji / Megumi ships,  - but i do love Satosugu, and Itafushi.
 </p>
 
 
